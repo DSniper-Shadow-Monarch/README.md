@@ -1,2 +1,2 @@
 # README.md
-My hobbies are taking walks, running, and watching anime
+My hobbies are taking walks and running
